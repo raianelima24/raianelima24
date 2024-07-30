@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning speak english
 - 💞️ I’m looking to collaborate on subject that I have difficulty with
 - 📫 How to reach me: say hi to me
-- 😄 Pronouns: she/he
+- 😄 Pronouns: she/her
 - ⚡ Fun fact: i like jazz music, it's not fact fun, but I'm prefer to talk about this.
 
 <!---
