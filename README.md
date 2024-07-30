@@ -2,7 +2,7 @@
 - 👀 I’m interested in play volleyball
 - 🌱 I’m currently learning speak english
 - 💞️ I’m looking to collaborate on subject that I have difficulty with
-- 📫 How to reach me: say hi to me, or slimeat me
+- 📫 How to reach me: say hi to me, or slime at me
 - 😄 Pronouns: she/he
 - ⚡ Fun fact: i like jazz music, it's not fact fun, but I'm prefer to talk about this.
 
